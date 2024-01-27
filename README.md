@@ -2,19 +2,19 @@
 
 ## DOŚWIADCZENIE
 06.2018–08.2018
-ASYSTENT SERWISANTA, MARIUSZ JAN WEKWEJT
+ASYSTENT SERWISANTA, MARIUSZ JAN WEKWEJT <br> 
 •	Bezpośredni kontakt z klientem, tłumaczenie oraz prezentacja zasad działania produktu.
 •	Inwentaryzacja narzędzi oraz dbanie o porządek.
 •	Asystowanie w naprawach mebli.
 
 06.2019–08.2019
-MŁODSZY PAKOWACZ, UNILEVER
+MŁODSZY PAKOWACZ, UNILEVER <br> 
 •	Ukończenie 4-godzinnego kursu BHP w zakresie bezpiecznej pracy na magazynie.
 •	Dbanie o porządek na miejscu pracy.
 •	Umiejętność sprawnej pracy pod presją czasu.
 
 07.2023–OBECNIE
-KASJER-SPRZEDAWCA, JAGODA I ZBIGNIEW DUBIELA
+KASJER-SPRZEDAWCA, JAGODA I ZBIGNIEW DUBIELA <br>
 •	Ukończenie pełnowymiarowego szkolenia do pracy na kasie
 •	Dbanie o porządek na sklepie i magazynie.
 •	Praca z kolektorem Newland.
@@ -22,7 +22,7 @@ KASJER-SPRZEDAWCA, JAGODA I ZBIGNIEW DUBIELA
 
 ## WYKSZTAŁCENIE
 09.2015 - 05.2018
-II LICEUM OGÓLNOKSZTAŁCĄCE IM. M. KOPERNIKA W BYDGOSZCZY
+II LICEUM OGÓLNOKSZTAŁCĄCE IM. M. KOPERNIKA W BYDGOSZCZY <br>
 Profil matematyczno-geograficzny z rozszerzonym j. angielskim
 
 10.2021 – OBECNIE
