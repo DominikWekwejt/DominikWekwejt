@@ -1,4 +1,4 @@
-# Australijska 12/27 | 81-116 Gdynia |667 858 386 | nakae72@gmail.com
+# nakae72@gmail.com
 
 ## DOŚWIADCZENIE
 06.2018–08.2018
