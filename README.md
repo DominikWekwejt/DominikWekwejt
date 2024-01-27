@@ -34,7 +34,7 @@ UMIEJĘTNOŚCI
 •	Umiejętność pracy pod presją czasu
 
 # ZAINTERESOWANIA
-•	Gry komputerowe 
-•	Naprawa drobnych usterek i podstawowa konserwacja sprzętu komputerowego w domu
-•	Oglądanie filmów i seriali różnej maści
+•	Gry komputerowe <br>
+•	Naprawa drobnych usterek i podstawowa konserwacja sprzętu komputerowego w domu <br>
+•	Oglądanie filmów i seriali różnej maści <br>
 •	Historia konstrukcji pancernych z lat 1940-1950
