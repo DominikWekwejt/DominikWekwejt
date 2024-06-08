@@ -13,7 +13,7 @@ MŁODSZY PAKOWACZ, UNILEVER <br>
 •	Dbanie o porządek na miejscu pracy
 •	Umiejętność sprawnej pracy pod presją czasu
 
-07.2023–OBECNIE
+07.2023–05.2024
 KASJER-SPRZEDAWCA, JAGODA I ZBIGNIEW DUBIELA <br>
 •	Ukończenie pełnowymiarowego szkolenia do pracy na kasie
 •	Dbanie o porządek na sklepie i magazynie
